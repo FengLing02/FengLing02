@@ -1,4 +1,4 @@
-👋 Hi, I’m @FengLing02
+👋 Hi, I’m Ling(@FengLing02)
 
 👀 I’m interested in reading, and traveling. I love to explore different cultures and learn new things.
 
